@@ -6,3 +6,7 @@ In diesem Jahr haben wir 3 Module gleichzeitig, deswegen möchte ich die meiste 
 ## 16.08.24 
 
 Heute möchte ich 2 Moodle-Tests machen im Modul 231, die Aufträge 04 und 05. Dann möchte ich noch den Auftag 06 im Modul 231 und im Modul 320 möchte ich die Presantationen wieder anschauen und studieren.
+
+## 30.08
+Ich möchte nächste Woche alle Aufträge Handlungsziel 2 im Modul 231, welche noch nicht erledigt worden sind bis dann, fertigstellen.
+Modul 320 Weiter arbeiten.
