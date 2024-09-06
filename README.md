@@ -10,3 +10,7 @@ Heute möchte ich 2 Moodle-Tests machen im Modul 231, die Aufträge 04 und 05. D
 ## 30.08
 Ich möchte nächste Woche alle Aufträge Handlungsziel 2 im Modul 231, welche noch nicht erledigt worden sind bis dann, fertigstellen.
 Modul 320 Weiter arbeiten.
+
+## 06.09
+
+Ich möchte alle Aufträge vom Handlungsziel 3 im Modul 231 erldedigen. Weil ich krank war am Mittwoch und nicht am Unterricht von Frau Rapisarda am Modul 322 teilnehmen konnte, möchte ich das auch noch nachholen.
