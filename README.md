@@ -14,3 +14,7 @@ Modul 320 Weiter arbeiten.
 ## 06.09
 
 Ich möchte alle Aufträge vom Handlungsziel 3 im Modul 231 erldedigen. Weil ich krank war am Mittwoch und nicht am Unterricht von Frau Rapisarda am Modul 322 teilnehmen konnte, möchte ich das auch noch nachholen.
+
+## 20.09
+
+Ich möchte alle restlichen Moodletests erledigen, heist von 22-27 im Handlungsziel 4 und Auftrag 29 im Handlungsziel 6 und solange die Zeit noch reicht die 2 restlichen Dokument Aufträge lösen
