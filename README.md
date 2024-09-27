@@ -18,3 +18,22 @@ Ich möchte alle Aufträge vom Handlungsziel 3 im Modul 231 erldedigen. Weil ich
 ## 20.09
 
 Ich möchte alle restlichen Moodletests erledigen, heist von 22-27 im Handlungsziel 4 und Auftrag 29 im Handlungsziel 6 und solange die Zeit noch reicht die 2 restlichen Dokument Aufträge lösen
+
+## 27.09
+
+Ich werde die letzten 2 aufträge im Modul 231 Auftrag 20 und Auftrag 21 noch fertig stellen und den Rest der Zeit nutzen um am Modul 322 zu lernen.
+
+## Bericht
+
+Ich habe die Moodletests 22-27 im Handlungsziel 4 und den Auftrag 29 im Handlungsziel 6 erfolgreich abgeschlossen. Dabei konnte ich mein Verständnis in den jeweiligen Themenbereichen vertiefen. Ich konnte noch keine praktische Anwendung für das Gelernte finden.
+
+Es gab kleinere Probleme bei einigen komplexen Fragestellungen, die unterschiedliche Interpretationen zuließen, was mich gefordert hat, genauer nachzudenken.
+
+Aktuell brauche ich keine Unterstützung, da ich die Aufgaben letztlich eigenständig lösen konnte.
+
+
+
+
+
+
+
